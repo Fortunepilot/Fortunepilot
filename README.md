@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fortunepilot
+- 👋 Hi, I’m @Fortunepilot is my account,
 - 👀 I’m interested in ... entrepreneurship and long life taxing skill sets.
 - 🌱 I’m currently learning ... Machine Learning
 - 💞️ I’m looking to collaborate on ... Paid project
